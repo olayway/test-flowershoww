@@ -1,4 +1,4 @@
-# My Musings & Memories 🏄‍♀️🏔️💃👾💄🦹‍♀️
+# My Musings & Memories 🏄‍♀️🏔️💃👾💄🦹‍♀️😃
 
 Welcome to my personal corner of the web, where I'll be sharing my thoughts, travel experiences, coding projects, and much more!
 
